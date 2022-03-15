@@ -3,7 +3,7 @@
 ###Contacts:
 * **Phone:** +375298099745
 * **Discord:** kravchanton#5417
-* **Telegram:** antonkrr
+* **Telegram:** [antonkrr](https://www.t.me/antonkrrr)
 * **Email:** qkravchanton@gmail.com
 ***
 ###About Me:
