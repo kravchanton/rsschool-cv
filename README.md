@@ -1,1 +1,1 @@
-https://kravchanton.github.io/rsschool-cv/cv
+https://kravchanton.github.io/rsschool-cv/
